@@ -1,4 +1,4 @@
 # location
-A bird that isn't a bird..Cutting its tail
+A Bird That Isn't A Bird..Cutting Its Tail
 
-Look for the sun amidst the darkness..
+Look For The Sun Amidst The Darkness..
